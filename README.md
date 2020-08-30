@@ -8,4 +8,3 @@
 - 📫 How to reach me: ... DM Me -> [Instagram](https://www.instagram.com/gupta.raghav.01/)
 - 😄 Pronouns: ... He/Him
 - ⚡ Fun fact: ... I love watching anime .
--->
