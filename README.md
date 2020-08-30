@@ -1,8 +1,6 @@
 ### Here is what I'm Working On! 👋
 
 
-Here are some ideas to get you started:
-
 - 🔭 I’m a Computer Science Student.
 - 🌱 I’m currently learning Web Development and Programming.
 - 👯 I’m looking to collaborate on ...any cool projects
